@@ -1,0 +1,1 @@
+# fastx-privacy-policy
